@@ -1,1 +1,1 @@
-https://money23adaweh.github.io/Omni-Food/
+http://adaweh.me/Omni-Food/
